@@ -1,1 +1,3 @@
-This would be the about page
+Just an average User Experience Design student who happens to love solving problems and helping people. Before last year, I didn't even know what UX was and I never imagined myself working hard to have a degree in it. I love having curiosity in life because it sparks things a bit and solving complex design problems helps me have that. 
+
+In my free time, I like to go out and explore new places and try out different cuisines. Living in different environments and learning about different cultures and languages is something I like to do. I love traveling so much that at some point in life I even decided to be a pilot just so I could travel all the time though it wasn't really a wise decision.  
